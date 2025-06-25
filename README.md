@@ -17,7 +17,7 @@
 
 点击访问：<a href="https://hl125.pages.dev/">揭秘黑料社</a>
 
-点击访问：<a href="https://hl134.pages.dev/">独家爆料</a>
+点击访问：<a href="https://cg65.pages.dev/">在线吃瓜入口</a>
 
 点击访问：<a href="https://hl137.pages.dev/">黑料社</a>
 
@@ -35,7 +35,7 @@
 
 点击访问：<a href="https://hl164.pages.dev/">视频一区二区</a>
 
-点击访问：<a href="https://chiguaqunzhongde.pages.dev/">黑料吃瓜网</a>
+点击访问：<a href="https://hl179.pages.dev/">78黑料</a>
 
 点击访问：<a href="https://hj-170.pages.dev/">91视频APP</a>
 
@@ -63,4 +63,4 @@ Telegram频道传送门：汇集各类热门Telegram频道入口，涵盖资讯�
 
 黑料大事记详细梳理娱乐圈与网红界的重要爆料事件，从爆发到发酵，时间线清晰，内容真实。它不仅记录每一次舆论风暴的起点，也让吃瓜群众轻松回顾往年大瓜，是了解圈内内幕的绝佳工具。
 
-<span style="display:none;">[Canonical link](https://github.com/hlw20250625/hlw20250625）</span>
+<span style="display:none;">[Canonical link](）</span>
